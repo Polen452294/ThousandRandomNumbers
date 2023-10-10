@@ -1,1 +1,1 @@
-It's not random
+It's fake random
